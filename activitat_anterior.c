@@ -1,1 +1,1 @@
-adwadawdawdwad
+adwadawdawdwad// Nova funcionalitat afegida
